@@ -16,7 +16,7 @@ I'm not claiming to be an expert in everything. I know enough to be dangerous an
 
 ## Languages
 
-Spanish & Catalan (native) | English (C2) | Swedish (B1) | Portuguese (A2)
+Spanish & Catalan (native) | English (C2) | Swedish (A2) | Portuguese (A2)
 
 Yeah, I speak a few languages. Comes in handy.
 
